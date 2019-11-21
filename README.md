@@ -1,3 +1,4 @@
+![enter image description here](https://www.allrecipes.com/recipe/229356/whole-wheat-oat-waffles/photos/1010040/)
 *Ingredients*
 1/2 cup whole wheat pastry flour $3.59
 1/2 cup all-purpose flour $1.89
